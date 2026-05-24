@@ -5,7 +5,7 @@ often mute, avoidant, and not talkative unless close. oh and afk or offtab too.
 
 iwc; friends of friends, below 14,sys/yumes(unless moots), overly attached or sensitive.
 
-dni; basic dni,ex friends/friends of ex friends,nothing in common,straightphobics,fujoshi/himejoshis
+dni; basic dni,ex friends/friends of ex friends,nothing in common,straightphobics,extreme fujoshi/himejoshis
 <p float="left">
   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled171_20260520202239.png" width="500" />
   <p align="center">
