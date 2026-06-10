@@ -1,5 +1,5 @@
 <div align="center">
- <img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Cigarettes&extraCount=12902&color=FFFFFf&labelColor=000000">
+ <img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Nagireos&extraCount=12902&color=FFFFFf&labelColor=000000">
 
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
